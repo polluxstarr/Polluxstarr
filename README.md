@@ -1,2 +1,1 @@
-
-duktur yokmu dukturrr
+lülülülülülü
